@@ -1,1 +1,1 @@
-# Cyber-Arena---Stick-Fight
+# Cyber-Arena Stick-Fight
